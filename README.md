@@ -1,1 +1,1 @@
-life is tough
+el psy kongroo
